@@ -1,0 +1,1 @@
+# AI-Drone-Technology-for-Human-Recovery-In-Landslides-Disaster
